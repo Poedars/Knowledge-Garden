@@ -1,3 +1,3 @@
-# Git Test 
+# Git Test
 
 Hello Quartz.
