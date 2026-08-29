@@ -1,4 +1,4 @@
-﻿# Backpropagation
+# Backpropagation
 
 ## What is Backpropagation?
 
@@ -10,3 +10,4 @@ It is an important part of training neural networks.
 
 [[Neural-Network]]
 [[Gradient-Descent]]
+
