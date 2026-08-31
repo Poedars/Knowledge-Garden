@@ -41,25 +41,12 @@ And every time your name lights up my phone
 Back to the boy who's singing a song
 
 I try to figure out something new
-To share the happy moment with you
-
-So I go looking for a little light
-Something new to make your day feel bright
-And when you answer, even just a line
-You can turn an ordinary day into mine
-
-You don't have to say too much
-One small reply is more than enough
-Funny how a grown heart can still
-Feel like a child when you say something it likes
+To share the funny moment  with you
+Sometimes I wonder, do you feel it too?
+but I'm afraid of telling truth
 
 [Pre-Chorus 2]
-
-Sometimes I wonder, do you feel it too?
-The little spark that pulls me toward you?
-I get so close to telling the truth
-Then fear whispers, "What if I lose you?"
-
+You are a princess from fairyland
 So I keep one step behind my heart
 Pretend that silence is a safer start
 But every road I take to hide
