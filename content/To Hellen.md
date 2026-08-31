@@ -12,19 +12,16 @@ I felt a little less alone
 
 [Pre-Chorus]
 
-You look at me and I come undone
-Like all my hiding has nowhere to run
-Every wall I built for years
-Falls apart when you are here
-
-And that's the part I can't control
-You get too close, you see my soul
-I want to stay, I want to hide
-So I swallow every word inside
+When you look at me and I come undone
+All my hiding has nowhere to run
+Like a soldier laying down his arms  
+Can never escape from your burning stares
+I could've opened my heart
+but I buried them inside
 
 [Chorus / Hook]
 
-I don't know why I like you
+I don't know why I'm falling for you
 I just know I do
 I could name a hundred reasons
 But they'd all come back to you
