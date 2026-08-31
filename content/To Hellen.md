@@ -46,31 +46,30 @@ Sometimes I wonder, do you feel it too?
 but I'm afraid of telling truth
 
 [Pre-Chorus 2]
-You are a princess from fairyland
-So I keep one step behind my heart
-Pretend that silence is a safer start
-But every road I take to hide
-Still turns around and leads to you tonight
+You are a princess from wonderland
+I was afraid to meet your eyes
+You are my only moonlight,
+chased away my sad sight
+but I hide secret in the shadow.
+where no one can know
 
 [Chorus / Hook]
 
-I don't know why I like you
-I just know I do
-I could name a hundred reasons
+I don't know why I've fallen for you
+Not the beauty everyone sees
+Not the sound of your voice
+I could name a thousand reasons
 But they'd all come back to you
-
-Not the way you look at midnight
-Not the way you make the whole room move
-When I strip away every answer
-It's simple — it's just you
 
 Because you're you
 Because you're you
 That's the only truth I can hold on to
 I don't need another reason
-I like you because you're you
+ I've fallen for you because you're you
 
 [Bridge]
+People might be drawn to your beauty
+But I'm conquered by your sunny
 
 They'll see your beauty first
 The kind that makes a room go still
