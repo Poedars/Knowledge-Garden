@@ -38,12 +38,10 @@ I don't need another reason
 I laugh at myself for being such a fool
 Always waiting for a sign from you
 And every time your name lights up my phone
-can't stop liking a child sing a song
+Back to the boy who's singing a song
 
-Now I notice little things all day
-A song, a view, something funny on the way
-And my first thought is always the same:
-I should send this to you, I should say your name
+I try to figure out something new
+To share the happy moment with you
 
 So I go looking for a little light
 Something new to make your day feel bright
