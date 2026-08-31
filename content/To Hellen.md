@@ -50,8 +50,8 @@ You are a princess from wonderland
 I was afraid to meet your eyes
 You are my only moonlight,
 chased away my sad sight
-but I hide secret in the shadow.
-where no one can know
+but I hide secret in my shadow.
+where no one else can know
 
 [Chorus / Hook]
 
@@ -69,17 +69,11 @@ I don't need another reason
 
 [Bridge]
 People might be drawn to your beauty
-But I'm conquered by your sunny
-
-They'll see your beauty first
-The kind that makes a room go still
-But I fell for something deeper
-The fire in your eyes, the things you love, the way you chase them still
-
-Your laugh is wild and innocent
-You meet the world without a shield
-You're soft like the wind through open windows
-But strong enough to move me where I stand
+But I'm captivated by your energy
+You have a sincere and strong heart, 
+and a childlike endearing laughter. 
+You are like the wind,
+gentle but powerful
 
 Maybe I'm not ready
 Maybe I'm afraid
@@ -87,7 +81,7 @@ Maybe having you this close
 Is more than I ever thought I'd have
 
 But I can't keep hiding
-Just to keep what we have safe
+Just to keep what we have hold
 Some feelings disappear in silence
 So this time, I will say your name
 
@@ -100,27 +94,18 @@ No more reading between the lines
 If you ask me why
 I won't turn away this time
 
-I like you.
+My heart chooses you
 
 [Final Chorus]
 
 I don't know why I like you
 I just know I do
-Every road, every little reason
+Every moment, every little reason
 Somehow led me here to you
 
-Not a type, not a perfect picture
-Not some dream I thought I'd choose
-I could search this whole world over
-And I'd still end up with you
-
 Because you're you
 Because you're you
-There is only one heart that feels like you
-I don't need another reason
-I like you because you're you
-
-And if tomorrow changes everything
+And if tomorrow everything changes
 At least you'll know the truth
 Out of all the people in this world
 My heart kept choosing you
