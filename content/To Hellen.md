@@ -22,22 +22,23 @@ but I buried them inside
 [Chorus / Hook]
 
 I don't know why I'm falling for you
-I just know I do
-I could name a hundred reasons
+Not the beauty everyone sees
+Not the sound of your voice
+I could name a thousand reasons
 But they'd all come back to you
-
-Not the way you look at midnight
-Not the way you make the whole room move
-When I strip away every answer
-It's simple — it's just you
 
 Because you're you
 Because you're you
 That's the only truth I can hold on to
 I don't need another reason
-I like you because you're you
+ I'm falling for you because you're you
 
 [Verse 2]
+
+I laugh at myself for being such a fool
+Always waiting for a sign from you
+And every time your name lights up my phone
+can't stop liking a child sing a song
 
 Now I notice little things all day
 A song, a view, something funny on the way
