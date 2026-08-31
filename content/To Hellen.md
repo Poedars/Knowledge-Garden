@@ -72,8 +72,8 @@ People might be drawn to your beauty
 But I'm captivated by your energy
 You have a sincere and strong heart, 
 and a childlike endearing laughter. 
-You are like the wind,
-gentle but powerful
+You are like the wind, a whisper so light
+Yet you carry the strength to change my life
 
 Maybe I'm not ready
 Maybe I'm afraid
