@@ -56,17 +56,10 @@
 **e lasciare un segno nell'anima.**  
 也在灵魂深处留下些什么。
 
-**Se la morte è la mia fine,**  
-如果死亡是我的终点，
-
-**non sarà la fine di me.**  
-它却不会是我的终结。
-
-**Finché questa luce vive,**  
-只要这束光还在燃烧，
-
-**io sono ancora qui.**  
-我便依然存在于这里。
+Se sono solo un breve istante  
+nel respiro dell'eternità,  
+allora voglio essere sveglio  
+mentre la vita passerà.
 
 ### Verse 2｜主歌 2
 
@@ -122,17 +115,10 @@
 **e lasciare un segno nell'anima.**  
 也在灵魂深处留下些什么。
 
-**Se la morte è la mia fine,**  
-如果死亡是我的终点，
-
-**non sarà la fine di me.**  
-它却不会是我的终结。
-
-**Finché questa luce vive,**  
-只要这束光还在燃烧，
-
-**io sono ancora qui.**  
-我便依然存在于这里。
+Se sono solo un breve istante  
+nel respiro dell'eternità,  
+allora voglio essere sveglio  
+mentre la vita passerà.
 
 ### Bridge｜桥段
 
