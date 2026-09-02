@@ -40,17 +40,17 @@ naa5 si4 ngo5 bat1 zi1
 
 jyun4 loi4 mei5 hou2 gwong1 jam1 zung2 jau5 zeon6 si4
 
-tung4 hang4 dik1 jan4 jik6 wui5 bun3 lou6 gou3 ci4
+tung4 hang4 dik1 jan4 jaa5 wui5 bun3 lou6 gou3 ci4
 
 jyun4 loi4 dang2 doi6 ji3 mei6 zyu3 ding6 co3 sat1
 
-soeng6 jat1 miu5 hiu2 hiu2 sing4 wai4 wing5 hang4 dik1 wui4 jik1
+soeng6 jat1 miu5 ciu3 ciu3 sing4 wai4 wing5 hang4 dik1 wui4 jik1
 
 suk6 sik1 dik1 jan4 jaa5 wui5 bin3 wui4 mak6 sang1 jan4
 
 [Verse 3]
 
-lam4 bit6 cin4 go2 go3 sam1 je6 leoi5
+lam4 bit6 cin4 naa5 go3 sam1 je6 leoi5
 
 ngo5 mun4 syut3 liu5 sou3 bat1 zeon6 dik1 sam1 si6
 
@@ -68,11 +68,11 @@ naa5 si4 ngo5 bat1 zi1
 
 jyun4 loi4 mei5 hou2 gwong1 jam1 zung2 jau5 zeon6 si4
 
-tung4 hang4 dik1 jan4 jik6 wui5 bun3 lou6 gou3 ci4
+tung4 hang4 dik1 jan4 jaa5 wui5 bun3 lou6 gou3 ci4
 
 jyun4 loi4 dang2 doi6 ji3 mei6 zyu3 ding6 co3 sat1
 
-soeng6 jat1 miu5 hiu2 hiu2 sing4 wai4 wing5 hang4 dik1 wui4 jik1
+soeng6 jat1 miu5 ciu3 ciu3 sing4 wai4 wing5 hang4 dik1 wui4 jik1
 
 suk6 sik1 dik1 jan4 jaa5 wui5 bin3 wui4 mak6 sang1 jan4
 
@@ -80,7 +80,7 @@ suk6 sik1 dik1 jan4 jaa5 wui5 bin3 wui4 mak6 sang1 jan4
 
 hau6 loi4 gaak3 zoek6 loeng5 zo6 sing4 si5
 
-ngo5 mun4 jing4 wui5 fan1 hoeng2 sang1 wut6 so2 si6
+ngo5 mun4 jing4 wui5 fan1 hoeng2 so2 si6
 
 naa5 si4 faai3 lok6 han2 gaan2 daan1
 
@@ -100,11 +100,11 @@ naa5 si4 ngo5 bat1 zi1
 
 jyun4 loi4 mei5 hou2 gwong1 jam1 zung2 jau5 zeon6 si4
 
-tung4 hang4 dik1 jan4 jik6 wui5 bun3 lou6 gou3 ci4
+tung4 hang4 dik1 jan4 jaa5 wui5 bun3 lou6 gou3 ci4
 
 jyun4 loi4 dang2 doi6 ji3 mei6 zyu3 ding6 co3 sat1
 
-soeng6 jat1 miu5 hiu2 hiu2 sing4 wai4 wing5 hang4 dik1 wui4 jik1
+soeng6 jat1 miu5 ciu3 ciu3 sing4 wai4 wing5 hang4 dik1 wui4 jik1
 
 suk6 sik1 dik1 jan4 jaa5 wui5 bin3 wui4 mak6 sang1 jan4
 
@@ -112,6 +112,6 @@ suk6 sik1 dik1 jan4 jaa5 wui5 bin3 wui4 mak6 sang1 jan4
 
 jin6 zoi6 ngo5 zung1 jyu1 zi1 dou3
 
-mou4 jau5 sam6 mo1 je6 wing5 hang4
+mou4 jau5 sam6 mo1 hai6 wing5 hang4
 
 gwo3 heoi3 dik1 naan4 zoi3 waan5 wui4
