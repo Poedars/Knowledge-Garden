@@ -13,7 +13,7 @@ Notes:
 
 6.scaled dot-product attention（缩放点积注意力）:"scaled" attention additional divides *wei* by 1/sqrt(head_size). This makes it so when input Q,K are unit variance,*wei* will be unit variance too and Softmax will stay diffuse and not saturate too much.
 ![[Pasted image 20260919201858.png]]
-
+dk:表示K的向量的维度
 为什么要控制wei的大小？因为Softmax对特别大的数比较敏感，假如：
 wei=[10,20,30]
 那么Softmax(wei)=[0.000045,0.000335,0.99962]，几乎变成[0,0,1]
